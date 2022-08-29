@@ -1,6 +1,6 @@
 Hi, Name's Flygonie. Or just Fly for short.
 
-I'm a basic ass video game soundtrack lover and a plants vs. zombies fan (also a furry)
+I'm a basic ass video game soundtrack lover that is also a furry
 
 Yes, my favorite pokemon is flygon.
 
